@@ -9,7 +9,9 @@ Here's what we know about the Gary:
 **Favourite hog:** Hedge  
 **Favourite colour hair:** Blue  
 **Favourite animal:** Moose  
+**Least favourite place to keep underwear:** tops of flagpoles  
 **Favourite genetic half-brother:** Brian
+
 
 This domain is up for grabs at *Maybee Thanksgiving Bingo 2019*! Why would you want this?
 - bragging rights  
