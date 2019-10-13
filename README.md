@@ -13,7 +13,7 @@ Here's what we know about the Gary:
 **Favourite genetic half-brother:** Brian
 
 
-This domain is up for grabs at *Maybee Thanksgiving Bingo 2019*! Why would you want this?
+This domain is up for grabs at *Maybee Thanksgiving Bingo 2019*! Why on Earth would you ever want this?
 - bragging rights  
 - blog about Gary things
 - have your very own "@garystock.ca" email address  
