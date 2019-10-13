@@ -7,6 +7,6 @@ Dedicated to one of our favourite cousins.
 Here's what we know about the Gary:
 
 **Favourite hog:** Hedge  
-**Favourite colour hair:** Blue
-**Favourite animal:** Moose
+**Favourite colour hair:** Blue  
+**Favourite animal:** Moose  
 **Favourite genetic half-brother:** Brian
