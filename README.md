@@ -2,7 +2,7 @@
 
 Dedicated to one of our favourite cousins.
 
-![cool car](/10604537_10100985916418617_509268133990094342_o.jpg
+![cool car](https://raw.githubusercontent.com/B-Stock/gargus/master/10604537_10100985916418617_509268133990094342_o.jpg)
 
 Here's what we know about the Gary:
 
